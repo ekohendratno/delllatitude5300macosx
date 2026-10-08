@@ -1,0 +1,2 @@
+# delllatitude5300macosx
+
